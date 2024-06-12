@@ -60,6 +60,5 @@
 </a>
 
 <br>
-<br>
 ![Abdallah (1)](https://github.com/Abdallahzezo/Abdallahzezo/assets/100561400/e02847f0-c170-49cc-afb0-b9c3c4f79c8f)
 
